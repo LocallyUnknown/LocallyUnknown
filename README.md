@@ -1,3 +1,4 @@
+LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
 I'm a teen, bi, genderfluid, abrosexual, and transgender.
