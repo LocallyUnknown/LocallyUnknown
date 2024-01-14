@@ -8,4 +8,5 @@ Taken by 2 people Dez and Tom/A<3
 ![peach-and-goma-peach-goma](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/ed464177-3a36-4d92-8988-68aab130bbf3)
 
 I like gaming,listening to music,drawing,watching videos,rping,social media,and chilling.
+
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
