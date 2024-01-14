@@ -11,6 +11,8 @@ I like gaming,listening to music,drawing,watching videos,rping,social media,and 
 
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
+![softheart](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/8a8f02f5-3c8f-4e09-8589-1c4e5c91c0d2)
+
 ![0080-genderfluid](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/353479e8-1a6f-4595-80af-3f7a6400f247)
 ![dghruvc-660d1ae1-09e1-4be1-bd7f-032b36bd92fd](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/34ea0bf4-afc7-4bda-a3d7-8aa0b381fbf9)
 ![0077-demiboy](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/801f804b-9b71-454c-896c-75fa3def6c89)
