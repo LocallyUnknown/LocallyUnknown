@@ -10,7 +10,7 @@ Taken by 2 people Dez and Tom/A<3
 
 I like gaming,listening to music,drawing,watching videos,rping,social media,and chilling.
 
-https://gist.github.com/LocallyUnknown/5d0ae899f55c6129aee54f100ea56eea
+http://LocallyUnknown.123Guestbook.com
 
 https://basicinfotoknowaboutme.carrd.co
 
