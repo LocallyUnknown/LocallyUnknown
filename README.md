@@ -10,7 +10,7 @@ Taken by 2 people Dez and Tom/A<3
 
 I like gaming,listening to music,drawing,watching videos,rping,social media,and chilling.
 
-[](https://linkspage.straw.page)
+[(https://linkspage.straw.page)]
 
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
