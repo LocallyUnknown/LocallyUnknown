@@ -10,7 +10,7 @@ Taken by 2 people Dez and Tom/A<3
 
 I like gaming,listening to music,drawing,watching videos,rping,social media,and chilling.
 
-[https://linkspage.straw.page](https://basicinfotoknowaboutme.carrd.co/)
+https://basicinfotoknowaboutme.carrd.co/
 
 http://locallyunknown.123guestbook.com/
 
