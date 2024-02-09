@@ -18,8 +18,6 @@ http://locallyunknown.123guestbook.com/
 
 https://en.pronouns.page/@Tord-He.They
 
-https://rulesonline.carrd.co/
-
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
 ![softheart](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/8a8f02f5-3c8f-4e09-8589-1c4e5c91c0d2)
