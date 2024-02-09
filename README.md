@@ -12,9 +12,9 @@ I like gaming,listening to music,drawing,watching videos,rping,social media,and 
 
 [https://linkspage.straw.page](https://basicinfotoknowaboutme.carrd.co/)
 
-(http://locallyunknown.123guestbook.com/)
+http://locallyunknown.123guestbook.com/
 
-(https://en.pronouns.page/@Tord-He.They)
+https://en.pronouns.page/@Tord-He.They
 
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
