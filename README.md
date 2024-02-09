@@ -1,3 +1,5 @@
+Updated: 2/9/24 at 3:53PM
+
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
