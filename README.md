@@ -1,4 +1,6 @@
-Updated: 2/11/24 at 9:50PM
+Updated: 2/22/24 at 8:39PM
+
+I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
