@@ -1,4 +1,4 @@
-Updated: 2/22/24 at 8:39PM
+Updated: 4/05/24 at 10:13PM
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
