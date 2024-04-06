@@ -5,7 +5,7 @@ I am a Tord main so if I'm anyone else it's usually for someone, Tord will alway
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
-I'm a teen, bi, genderfluid, abrosexual, and transgender.
+I'm a teen, bi, genderfluid, abrosexual, demisexual?, and transgeder.
 I go by He/They. I am a Taurus-Gemini.
 Furry,therian,otherkin.
 Taken by 2 people Dez and Tom<3
