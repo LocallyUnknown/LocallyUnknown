@@ -1,5 +1,7 @@
 Updated: 4/08/24 at 3:24PM
 
+Any hate will be censored and blocked on Guestbook!!
+
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
 LGBTQ+ and Furry commuinty supporter.
@@ -23,8 +25,6 @@ https://en.pronouns.page/@Tord-He.They
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
 ![softheart](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/8a8f02f5-3c8f-4e09-8589-1c4e5c91c0d2) 
-
-Any hate will be censored and blocked!!
 
 ![120288j3kaaguf1m](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/33bec524-75e2-4aed-85a6-2fc023d1655c)
 
