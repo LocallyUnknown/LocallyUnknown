@@ -1,4 +1,4 @@
-Updated: 4/08/24 at 3:24PM
+Updated: 4/08/24 at 3:43PM
 
 Any hate will be censored and blocked on Guestbook!!
 
@@ -7,7 +7,7 @@ I am a Tord main so if I'm anyone else it's usually for someone, Tord will alway
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
-I'm a teen, bi, genderfluid, abrosexual, demisexual?, and transgeder.
+I'm a teen, bi, genderfluid, abrosexual, demisexual?, and transgender.
 I go by He/They. I am a Taurus-Gemini.
 Furry,therian,otherkin.
 Taken by 2 people Dez and Tom<3
