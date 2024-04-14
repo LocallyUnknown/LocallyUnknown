@@ -1,4 +1,4 @@
-Updated: 4/08/24 at 11:55PM
+Updated: 4/14/24 at 1:09AM
 
 Any hate will be censored and blocked on Guestbook!! [not pg also will be censored. You can put stuff like that privately it's preferred not where everyone can see it]
 
@@ -19,8 +19,6 @@ I like gaming,listening to music,drawing,watching videos,rping,social media,and 
 https://basicinfotoknowaboutme.carrd.co/
 
 http://locallyunknown.123guestbook.com/
-
-https://en.pronouns.page/@Tord-He.They
 
 ![blinkiesCafe-eW](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/4a9b5b12-0b26-499e-aa1d-3784418447d1)
 
