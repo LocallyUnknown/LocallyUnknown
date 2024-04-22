@@ -1,6 +1,6 @@
-Updated: 4/16/24 at 3:31AM
+Updated: 4/21/24 at 10:43PM
 
-Any hate will be censored and blocked on Guestbook!! [not pg also will be censored. You can put stuff like that privately it's preferred not where everyone can see it. Also if you got something to say to me then say it to me]
+Any hate will be censored and blocked on Guestbook!!
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
