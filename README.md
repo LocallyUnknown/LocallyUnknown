@@ -1,8 +1,9 @@
-Updated: 5/13/24 at 10:39PM
+Updated: 5/13/24 at 10:40PM
 
 Any issues have been resolved
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
+
 Also if I'm doing any ship other then TomTord it's because I make exception for my partner but not any TomEdd stuff I see them as brothers ;-;
 
 LGBTQ+ and Furry commuinty supporter.
