@@ -1,13 +1,14 @@
-Updated: 4/22/24 at 1:04AM
+Updated: 5/13/24 at 10:39PM
 
 Any issues have been resolved
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
+Also if I'm doing ny ship other then TomTord it's because I make exception for my partner but not any TomEdd stuff I see them as brothers ;-;
 
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
-I'm a teen, bi, genderfluid, abrosexual, demisexual?, transgender, and demiromantic?.
+I'm a bi, genderfluid, abrosexual, demisexual?, transgender, and demiromantic?.
 I go by He/They (demi-boy). I am a Taurus-Gemini.
 Furry,therian,otherkin.
 Taken by 2 people Dez and Tom<3
