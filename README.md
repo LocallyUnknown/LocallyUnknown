@@ -1,6 +1,6 @@
 Updated: 9/14/24 12:44AM
 
-Has to play on custom servers now
+Can't play anymore
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
