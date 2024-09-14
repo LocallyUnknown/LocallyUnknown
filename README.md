@@ -1,6 +1,6 @@
-Updated: 9/14/24 12:07AM
+Updated: 9/14/24 12:44AM
 
-Can be found in AshesTown
+Has to play on custom servers now
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
