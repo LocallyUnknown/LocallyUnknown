@@ -1,4 +1,6 @@
-Updated: 9/07/24 at 12:26AM
+Updated: 9/14/24 12:07AM
+
+Can be found in AshesTown
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
