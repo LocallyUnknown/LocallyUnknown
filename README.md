@@ -1,6 +1,6 @@
-Updated: 9/14/24 12:47AM
+Updated: 10/19/24 10:02PM
 
-Can't play anymore
+Can't play anymore but I made a new one just not very active anymore
 
 I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
 
