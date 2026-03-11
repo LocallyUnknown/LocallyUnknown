@@ -9,7 +9,7 @@ Also if I'm doing any ship other then TomTord it's because I make exception for 
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
-I'm a gay maybe pan, genderfluid, abrosexual, demisexual?, transgender, and demiromantic?.
+I'm a gay maybe pan, genderfluid, abrosexual, demisexual, transgender, and demiromantic
 I go by He/they/xe/xem (demi-boy). I am a Taurus-Gemini.
 Furry,therian,otherkin.
 Taken 
