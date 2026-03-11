@@ -9,14 +9,14 @@ Also if I'm doing any ship other then TomTord it's because I make exception for 
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
 You can call me Tord!
-I'm a bi, genderfluid, abrosexual, demisexual?, transgender, and demiromantic?.
-I go by He/They (demi-boy). I am a Taurus-Gemini.
+I'm a gay maybe pan, genderfluid, abrosexual, demisexual?, transgender, and demiromantic?.
+I go by He/they/xe/xem (demi-boy). I am a Taurus-Gemini.
 Furry,therian,otherkin.
-Taken by 2 people Dez and Tom<3
+Taken 
 
 ![peach-and-goma-peach-goma](https://github.com/LocallyUnknown/LocallyUnknown/assets/155686196/ed464177-3a36-4d92-8988-68aab130bbf3)
 
-I like gaming,listening to music,drawing,watching videos,rping,social media,and chilling.
+I like gaming,listening to music,singing,drawing,watching videos,roleplaying,creating things,social media,and chilling.
 
 https://basicinfotoknowaboutme.carrd.co/
 
