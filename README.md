@@ -1,10 +1,4 @@
-Updated: 3/10/26 10:39PM
-
-Can't play anymore but I made a new one just not very active anymore
-
-I am a Tord main so if I'm anyone else it's usually for someone, Tord will always be the main character I rp
-
-Also if I'm doing any ship other then TomTord it's because I make exception for my partner but not any TomEdd stuff I see them as brothers ;-;
+Updated:9/8
 
 LGBTQ+ and Furry commuinty supporter.
 Hey there! Welcome to my Read Me!
